@@ -8,7 +8,7 @@ In this Report I have created an extensive project focused on generating compreh
   
   
     1.) Most of the sales done by the COD (41%)
-  
+   
  	  2.) Western Region contribute maximum sales (33%)
   
  	  3.) Consumers segment have very high contribution in sales (48%)
